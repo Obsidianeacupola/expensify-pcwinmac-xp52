@@ -1,4 +1,4 @@
-# 
+# Gratuito Expensify complementos para Mac OS | Seguro Expensify complementos para PC Windows. Con conciliación bancaria y llenado de formularios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
